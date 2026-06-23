@@ -1,4 +1,3 @@
-# Portfolio
 # Hi, I'm Omar 👋
 
 MBBS Graduate with interests in:
