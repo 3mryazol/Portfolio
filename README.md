@@ -32,7 +32,10 @@ My long-term mission is to bridge healthcare professionals, patients, and techno
 ## Connect
 
 LinkedIn:
-[Your LinkedIn]
+https://www.linkedin.com/in/omar-emad-aldeen-aaa556364/
+
+Instagram:
+https://www.instagram.com/3mryazol/
 
 Email:
 3mryazol@gmail.com
