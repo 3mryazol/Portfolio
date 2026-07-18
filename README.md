@@ -1,8 +1,8 @@
   
 # بِسْمِ اللَّهِ الرَّحْمَنِ الرَّحِيمِ 
-# من عمر بن عمادالدين الى العامة , السَّلَامُ عَلَى مَنْ اتَّبَعَ الْهُدَى أَمَّا بَعْدُ
+# السَّلَامُ عَلَى مَنْ اتَّبَعَ الْهُدَى أَمَّا بَعْدُ
 
-Omar Emad Aldeen :
+Omar Emad Aldeen | عمر بن عمادالديمن
 
 I'm an MBBS graduate, but medicine isn't where my story ends — it's where it starts. I'm building my way into HealthTech: the intersection of clinical knowledge, product thinking, and AI, because I think that's where healthcare actually gets better for the people who need it.
 
